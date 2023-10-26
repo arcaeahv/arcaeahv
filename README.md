@@ -1,8 +1,3 @@
-hi
+they/it or jst dont refer to me
 
-
-c+h ok if u see me alone
-
-no dni i hide freely
-
-feel free to chat i dont bite
+dniuid, even if you're close
